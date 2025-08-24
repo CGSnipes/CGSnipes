@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CGSnipes
 - 👀 I’m interested in Aerospace engineering
-- 🌱 I’m currently learning self learning Aerospace enginneering and computer science
+- 🌱 I’m currently studying Aerospace enginneering and computer science
 - 💞️ I’m looking to collaborate on n/a
 - 📫 How to reach me n/a
 
